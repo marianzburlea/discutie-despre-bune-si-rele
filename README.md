@@ -9,6 +9,9 @@ Suma alegerilor pe care le facem ne defineste.
 
 What makes someone Succeed?
 
+- influence on social media
+- spend time on social media
+
 - make getting hireable your #1 priority
 - gain experience the interview process
 - you are a need for the company
@@ -29,12 +32,18 @@ What makes someone Succeed?
 
 What makes someone fail?
 
+- not on social media
+- spend time on social media
+
+- not starting
 - you have to do a lot of things, not be baby sitted
+- lipsa de practica a informatiilor descoperite
+
 - going on holidays
 - not connecting with your clients
 - you are at best a nice to have
 - not enough training
-  - not a clear goal and path
+- not a clear goal and path
 
 
 - specatator (audience)
